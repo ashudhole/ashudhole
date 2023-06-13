@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ashudhole
+- 👀 I’m interested in photography
+- 🌱 I’m currently learning computer engineering
+- 💞️ I’m looking to collaborate on new technologies
